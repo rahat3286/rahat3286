@@ -1,1 +1,1 @@
-### Hi there, I'm  [Rahat][website] 👋
+### Hi there, I'm Rahat 👋
